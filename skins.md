@@ -28,14 +28,14 @@ Click on the name of the skin to download!
 ![](https://osu.ppy.sh/ss/14967536/becd)
 
 # [Happyknight Fiery](https://www.dropbox.com/s/iwemnu4wttogzfz/-_happyknightfieryskin_-.osk?dl=0)
-![](https://osu.ppy.sh/ss/14843351/0a40)
+![](https://osu.ppy.sh/ss/14967554/06f2)
 
 # [Happyknight Nomod HR skin (Varvalian skin)](https://www.dropbox.com/s/g55nngueo8s60wd/-_happyknightnomodhr_-.osk?dl=0)
-![](https://osu.ppy.sh/ss/14843359/4eff)
+![](https://osu.ppy.sh/ss/14967558/b23d)
 
-# [Rafis 2017-08-10](http://www.mediafire.com/file/e6bxucfxawlcvtf/Rafis_2017-08-10.osk/file)
-![](https://osu.ppy.sh/ss/14843369/3579)
+# [White and Purple DT](https://www.dropbox.com/s/b8dady2z0capr2u/-%20%20%20%20%20%20%20%20%23%20White%20and%20Purple%20DT%20%20%23-.osk?dl=0)
+![](https://osu.ppy.sh/ss/14967562/ce57)
 
-# [WWW 1.8.1](https://www.mediafire.com/file/eqbzj6v0v2k7x4s/WWW_1.8.1.osk/file)
-![](https://skins.osuck.net/uploads/posts/2018-12/1543650553_3.jpg)
+# [WWW 2.01](http://www.mediafire.com/file/z45rm6mq91ll9uz/WWW_2.01.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537800571_nhdvbgg.jpg)
 
