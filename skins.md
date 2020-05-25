@@ -72,3 +72,20 @@ Click on the name of the skin to download!
 # [- freddie+fami+aireuvv](https://masterchefcanada.s-ul.eu/Y5N3gZxW)
 ![](https://camo.githubusercontent.com/a76bcafeed730b10f8e0cbc600768faccbcb5a9a/68747470733a2f2f6f73752e7070792e73682f73732f31343733323937372f36656430)
 
+# [BubbleSkin18-12-19](https://www.mediafire.com/file/ia8dgwp728iyzfc/BubbleSkin18-12-19.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-12/1575787645_3.jpg)
+
+# [#Azer+Emilia+2018(CK)](http://www.mediafire.com/file/adpaa1pv386oo6d/%2523Azer%252BEmilia%252B2018%2528CK%2529.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537794492_onuwgnb.jpg)
+
+# [YUGEN/BADEU skin](https://waa.ai/ejcI)
+![](https://osu.ppy.sh/ss/14843273/cda0)
+
+# [- okinamo ](http://www.mediafire.com/file/e8ha7kxcmdjdd9d/-_okinamo.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-03/1553930083_screenshot3317.jpg)
+
+# [mathi ensalada (Yellow Cursor)](http://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-03/1553936590_screenshot3523.jpg)
+
+# [mathis ensalada (Blue Cursor)](http://www.mediafire.com/file/5okhdqiooa12mit/mathi_ensalada_v1.5_%2528Blue_cursor%2529.osk/file)
+![](https://skins.osuck.net/uploads/posts/2020-03/1585203789_screenshot8309.jpg)
