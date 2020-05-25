@@ -39,3 +39,32 @@ Click on the name of the skin to download!
 # [WWW 2.01](http://www.mediafire.com/file/z45rm6mq91ll9uz/WWW_2.01.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2018-09/1537800571_nhdvbgg.jpg)
 
+# [# owoTuna {1.4} 『Selyu+Shige+New_sliderb』 #](http://www.mediafire.com/file/1v4zc2g2ullyj9g/-_%2523_owoTuna_%257B1.4%257D_%25E3%2580%258ESelyu%252BShige%252BNew_sliderb%25E3%2580%258F_%2523_-.osk/file)
+![](https://osu.ppy.sh/ss/14967578/b563)
+
+# [CSGO Skin](http://puu.sh/uPbqF/49c0f73b26.osk)
+![](https://osu.ppy.sh/ss/14843301/c799)
+
+# [owoTuna 1.4 (CK)](http://www.mediafire.com/file/daf98ilcwlfqa81/-_%2523_owoTuna_%257B1.4%257D_%25E3%2580%258ECK%25E3%2580%258F_%2523_-.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-07/1564486931_screenshot6193.jpg)
+
+# [GONK (lego starwars skin)](https://cdn.discordapp.com/attachments/548011307996020748/672969973634695178/GONK.osk)
+![](https://osu.ppy.sh/ss/14843316/2183)
+
+# [owoTuna 1.4 (Mathi)](http://www.mediafire.com/file/a4cflw0mcvblvdl/-_%2523_owoTuna_%257B1.4%257D_%25E3%2580%258EMathi%25E3%2580%258F_%2523_-.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-07/1564486960_screenshot6201.jpg)
+
+# [idke colour+opaque skin](https://www.mediafire.com/file/4ylwgmw7a7s2izx/idke_colour+opaque.osk/file)
+![](https://osu.ppy.sh/ss/14843345/4714)
+
+# [Komori - MC NOEL (VI)](http://www.mediafire.com/file/70pe02sidjyie9u/Komori_-_MC_NOEL_%2528VI%2529.osk/file)
+![](https://osu.ppy.sh/ss/14843351/0a40)
+
+# [New Noel / #BeasttrollMC #3](http://www.mediafire.com/file/ghds1jtiyktym48/%23BeasttrollMC_%233.osk/file)
+![](https://osu.ppy.sh/ss/14843359/4eff)
+
+# [Rafis 2017-08-10](http://www.mediafire.com/file/e6bxucfxawlcvtf/Rafis_2017-08-10.osk/file)
+![](https://osu.ppy.sh/ss/14843369/3579)
+
+# [WWW 1.8.1](https://www.mediafire.com/file/eqbzj6v0v2k7x4s/WWW_1.8.1.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-12/1543650553_3.jpg)
