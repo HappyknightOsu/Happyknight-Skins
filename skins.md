@@ -12,25 +12,25 @@ Click on the name of the skin to download!
 # [Happyknight DT #3](https://www.dropbox.com/s/q0uhaqgjt0a0ro4/-_happyknightdt3_-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14967478/d37a)
 
-# [CSGO Skin](http://puu.sh/uPbqF/49c0f73b26.osk)
-![](https://osu.ppy.sh/ss/14843301/c799)
+# [Happyknight DT #4](https://www.dropbox.com/s/3w8k2hvkwn4pnmy/-_happyknightdt4_-.osk?dl=0)
+![](https://osu.ppy.sh/ss/14967492/1f2c)
 
-# [owoTuna 1.4 (Selyu+Shige)](http://www.mediafire.com/file/hlu61ixoq2mx7x4/-_%2523_owoTuna_%257B1.4%257D_%25E3%2580%258ESelyu%252BShige%25E3%2580%258F_%2523_-.osk/file)
-![](https://osu.ppy.sh/ss/14843302/4967)
+# [Happyknight DT #5](https://www.dropbox.com/s/1rocx1x4x89dmqv/-_happyknightdt5_-.osk?dl=0)
+![](https://osu.ppy.sh/ss/14967503/03be)
 
-# [GONK (lego starwars skin)](https://cdn.discordapp.com/attachments/548011307996020748/672969973634695178/GONK.osk)
-![](https://osu.ppy.sh/ss/14843316/2183)
+# [HappyknightMonochromia](https://www.dropbox.com/s/iqmu00nhif2rnbw/-%20%E3%80%8EHappyknightMonochromia%E3%80%8F%20-.osk?dl=0)
+![](https://osu.ppy.sh/ss/14967506/133b)
 
-# [Gradient_Spam_Twilight](http://www.mediafire.com/file/t074nsfenq74ibw/Gradient_Spam_Twilight.osk/file)
-![](https://osu.ppy.sh/ss/14843340/48cb)
+# [Happyknight Kirby](https://www.dropbox.com/s/jxqc3u1706pj656/-_Happyknight%20kirby_-.osk?dl=0)
+![](https://osu.ppy.sh/ss/14967530/22e2)
 
-# [idke colour+opaque skin](https://www.mediafire.com/file/4ylwgmw7a7s2izx/idke_colour+opaque.osk/file)
-![](https://osu.ppy.sh/ss/14843345/4714)
+# [Happyknight idke](https://www.dropbox.com/s/y8wngfjt50p87z5/-_happyknightidke_-.osk?dl=0)
+![](https://osu.ppy.sh/ss/14967536/becd)
 
-# [Komori - MC NOEL (VI)](http://www.mediafire.com/file/70pe02sidjyie9u/Komori_-_MC_NOEL_%2528VI%2529.osk/file)
+# [Happyknight Fiery](http://www.mediafire.com/file/70pe02sidjyie9u/Komori_-_MC_NOEL_%2528VI%2529.osk/file)
 ![](https://osu.ppy.sh/ss/14843351/0a40)
 
-# [New Noel / #BeasttrollMC #3](http://www.mediafire.com/file/ghds1jtiyktym48/%23BeasttrollMC_%233.osk/file)
+# [Happyknight Nomod HR skin (Varvalian skin)](http://www.mediafire.com/file/ghds1jtiyktym48/%23BeasttrollMC_%233.osk/file)
 ![](https://osu.ppy.sh/ss/14843359/4eff)
 
 # [Rafis 2017-08-10](http://www.mediafire.com/file/e6bxucfxawlcvtf/Rafis_2017-08-10.osk/file)
