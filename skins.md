@@ -54,8 +54,8 @@ Click on the name of the skin to download!
 # [owoTuna 1.4 (Mathi)](http://www.mediafire.com/file/a4cflw0mcvblvdl/-_%2523_owoTuna_%257B1.4%257D_%25E3%2580%258EMathi%25E3%2580%258F_%2523_-.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1564486960_screenshot6201.jpg)
 
-# [idke colour+opaque skin](https://www.mediafire.com/file/4ylwgmw7a7s2izx/idke_colour+opaque.osk/file)
-![](https://osu.ppy.sh/ss/14843345/4714)
+# [- # WhiteCat (1.0) 『CK』 #-](http://www.mediafire.com/file/6250ar1z1jq0aes/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg)
 
 # [Komori - MC NOEL (VI)](http://www.mediafire.com/file/70pe02sidjyie9u/Komori_-_MC_NOEL_%2528VI%2529.osk/file)
 ![](https://osu.ppy.sh/ss/14843351/0a40)
@@ -63,8 +63,12 @@ Click on the name of the skin to download!
 # [New Noel / #BeasttrollMC #3](http://www.mediafire.com/file/ghds1jtiyktym48/%23BeasttrollMC_%233.osk/file)
 ![](https://osu.ppy.sh/ss/14843359/4eff)
 
-# [Rafis 2017-08-10](http://www.mediafire.com/file/e6bxucfxawlcvtf/Rafis_2017-08-10.osk/file)
-![](https://osu.ppy.sh/ss/14843369/3579)
+# [WhiteCat 1.0 (NM)](http://www.mediafire.com/file/0x85j314b5oi3am/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ENM%25E3%2580%258F_%2523-.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-11/1573897242_6.jpg)
 
-# [WWW 1.8.1](https://www.mediafire.com/file/eqbzj6v0v2k7x4s/WWW_1.8.1.osk/file)
-![](https://skins.osuck.net/uploads/posts/2018-12/1543650553_3.jpg)
+# [- + shirousa (edit) skin](https://www.mediafire.com/file/yp0evunuu0i22cf/-_+_shirousa_%28edit%29.osk/file)
+![](https://skins.osuck.net/uploads/posts/2020-04/1588149492_screenshot8610.jpg)
+
+# [- freddie+fami+aireuvv](https://masterchefcanada.s-ul.eu/Y5N3gZxW)
+![](https://camo.githubusercontent.com/a76bcafeed730b10f8e0cbc600768faccbcb5a9a/68747470733a2f2f6f73752e7070792e73682f73732f31343733323937372f36656430)
+
