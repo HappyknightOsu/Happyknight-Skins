@@ -27,10 +27,10 @@ Click on the name of the skin to download!
 # [Happyknight idke](https://www.dropbox.com/s/y8wngfjt50p87z5/-_happyknightidke_-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14967536/becd)
 
-# [Happyknight Fiery](http://www.mediafire.com/file/70pe02sidjyie9u/Komori_-_MC_NOEL_%2528VI%2529.osk/file)
+# [Happyknight Fiery](https://www.dropbox.com/s/iwemnu4wttogzfz/-_happyknightfieryskin_-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14843351/0a40)
 
-# [Happyknight Nomod HR skin (Varvalian skin)](http://www.mediafire.com/file/ghds1jtiyktym48/%23BeasttrollMC_%233.osk/file)
+# [Happyknight Nomod HR skin (Varvalian skin)](https://www.dropbox.com/s/g55nngueo8s60wd/-_happyknightnomodhr_-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14843359/4eff)
 
 # [Rafis 2017-08-10](http://www.mediafire.com/file/e6bxucfxawlcvtf/Rafis_2017-08-10.osk/file)
