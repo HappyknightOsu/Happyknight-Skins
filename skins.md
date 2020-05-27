@@ -33,6 +33,12 @@ Click on the name of the skin to download!
 # [Happyknight Nomod HR skin (Varvalian skin)](https://www.dropbox.com/s/g55nngueo8s60wd/-_happyknightnomodhr_-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14967558/b23d)
 
+# [-- +Jace 6.25 (edited by Happyknight) + --](https://happyknight.s-ul.eu/stra2Y5h)
+![](https://osu.ppy.sh/ss/14981180/6dcf)
+
+# [TeaTime edited by Happyknight](https://happyknight.s-ul.eu/7N7lCqY8)
+![](https://osu.ppy.sh/ss/14981198/fe7d)
+
 # [White and Purple DT](https://www.dropbox.com/s/b8dady2z0capr2u/-%20%20%20%20%20%20%20%20%23%20White%20and%20Purple%20DT%20%20%23-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14967562/ce57)
 
